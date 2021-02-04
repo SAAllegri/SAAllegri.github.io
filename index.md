@@ -2,4 +2,3 @@
 
 [LinkedIn](https://www.linkedin.com/in/stephen-allegri-450922175/)
 
-HELLO
